@@ -6,6 +6,8 @@ Soundcloud: https://soundcloud.com/lgg-littlegreengiant
 
 Steam: https://steamcommunity.com/id/LittleGreenGiant/
 
+Email: tplinkimissyou@gmail.com
+
 <!--
 **MiniGreenGiant/MiniGreenGiant** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
