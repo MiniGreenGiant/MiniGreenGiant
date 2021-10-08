@@ -6,6 +6,8 @@ Soundcloud: https://soundcloud.com/lgg-littlegreengiant
 
 Steam: https://steamcommunity.com/id/LittleGreenGiant/
 
+Discord: https://discord.gg/CznsdKAN4F
+
 Email: tplinkimissyou@gmail.com
 
 <!--
