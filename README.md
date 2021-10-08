@@ -1,6 +1,9 @@
 Youtube: https://www.youtube.com/channel/UCP23QTE8hW95E5wksm5i_zA
+
 Twitter: https://twitter.com/SmallGreen_LGG
+
 Soundcloud: https://soundcloud.com/lgg-littlegreengiant
+
 Steam: https://steamcommunity.com/id/LittleGreenGiant/
 
 <!--
