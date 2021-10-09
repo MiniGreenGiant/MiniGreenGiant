@@ -6,7 +6,7 @@ SoundCloud: https://soundcloud.com/lgg-littlegreengiant
 
 Steam: https://steamcommunity.com/id/LittleGreenGiant/
 
-Discord: https://discord.gg/CznsdKAN4F
+Discord Server: https://discord.gg/CznsdKAN4F
 
 Twitch: https://www.twitch.tv/littlegreengiantlgg
 
