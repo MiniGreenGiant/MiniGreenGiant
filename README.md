@@ -10,6 +10,8 @@ Discord: https://discord.gg/CznsdKAN4F
 
 Twitch: https://www.twitch.tv/littlegreengiantlgg
 
+GitHub https://github.com/MiniGreenGiant
+
 Email: tplinkimissyou@gmail.com
 
 <!--
