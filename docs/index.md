@@ -10,5 +10,6 @@
 - [GitHub](https://github.com/MiniGreenGiant)
 - [DeviantArt](https://www.deviantart.com/littlegreengiant)
 - [This Site](https://minigreengiant.github.io/MiniGreenGiant/)
+- [ComicFury](https://comicfury.com/profile.php?username=LittleGreenGiant)
 - Email: tplinkimissyou@gmail.com
 - Minecraft Username: LittleGreenGiant
