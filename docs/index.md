@@ -12,5 +12,4 @@
 - [ComicFury](https://comicfury.com/profile.php?username=LittleGreenGiant)
 - Email: tplinkimissyou@gmail.com
 - Minecraft Username: LittleGreenGiant
-
 - [This Site](https://minigreengiant.github.io/MiniGreenGiant/)
