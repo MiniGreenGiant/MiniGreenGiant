@@ -16,5 +16,3 @@ DeviantArt: https://www.deviantart.com/littlegreengiant
 
 Email: tplinkimissyou@gmail.com
 
-Minecraft: LittleGreenGiant
-
