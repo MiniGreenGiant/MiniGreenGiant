@@ -1,5 +1,4 @@
 # LGG's Site
-![Eevee Sitting At A Tree](https://github.com/MiniGreenGiant/MiniGreenGiant/blob/6a2420bb2c0531477fafe1eb3ba5a93c126ec90e/Eevee%20Tree%20Icon.jpeg)
 
 ### My socal links
 - [Youtube](https://www.youtube.com/channel/UCZpbn15gvn0Xo3zhTZwAX_g)
