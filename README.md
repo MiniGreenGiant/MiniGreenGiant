@@ -17,3 +17,5 @@ DeviantArt: https://www.deviantart.com/littlegreengiant
 Email: tplinkimissyou@gmail.com
 
 Minecraft: LittleGreenGiant
+
+##https://comicfury.com/profile.php?username=LittleGreenGiant
