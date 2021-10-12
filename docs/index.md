@@ -9,5 +9,5 @@
 - [Twitch](https://www.twitch.tv/littlegreengiantlgg)
 - [GitHub](https://github.com/MiniGreenGiant)
 - [DeviantArt](https://www.deviantart.com/littlegreengiant)
-- [Email](tplinkimissyou@gmail.com)
+- Email: tplinkimissyou@gmail.com
 - Minecraft Username: LittleGreenGiant
