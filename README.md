@@ -16,5 +16,7 @@ DeviantArt: https://www.deviantart.com/littlegreengiant
 
 Comic Fury: https://comicfury.com/profile.php?username=LittleGreenGiant)
 
+- [Tumblr](https://littlegreengiant.tumblr.com/)
+
 Email: tplinkimissyou@gmail.com
 
