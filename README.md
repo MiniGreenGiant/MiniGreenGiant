@@ -9,6 +9,6 @@
 - [Deviant Art](https://www.deviantart.com/littlegreengiant)
 - [Comic Fury](https://comicfury.com/profile.php?username=LittleGreenGiant)
 - [Tumblr](https://littlegreengiant.tumblr.com/)
-- Email: tplinkimissyou@gmail.com
-- Minecraft Username: LittleGreenGiant
+- [Minecraft](mine.ly/LittleGreenGiant.1)
 - [My Site](https://minigreengiant.github.io/MiniGreenGiant/)
+- Email: tplinkimissyou@gmail.com
