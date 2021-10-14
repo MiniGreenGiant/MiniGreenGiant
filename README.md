@@ -11,4 +11,4 @@
 - [Tumblr](https://littlegreengiant.tumblr.com/)
 - Email: tplinkimissyou@gmail.com
 - Minecraft Username: LittleGreenGiant
-- [This Site](https://minigreengiant.github.io/MiniGreenGiant/)
+- [My Site](https://minigreengiant.github.io/MiniGreenGiant/)
