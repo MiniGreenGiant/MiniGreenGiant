@@ -14,5 +14,7 @@ GitHub: https://github.com/MiniGreenGiant
 
 DeviantArt: https://www.deviantart.com/littlegreengiant
 
+Comic Fury: https://comicfury.com/profile.php?username=LittleGreenGiant)
+
 Email: tplinkimissyou@gmail.com
 
