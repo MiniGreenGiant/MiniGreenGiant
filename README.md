@@ -7,8 +7,5 @@
 - [Twitch](https://www.twitch.tv/littlegreengiantlgg)
 - [GitHub](https://github.com/MiniGreenGiant)
 - [Deviant Art](https://www.deviantart.com/littlegreengiant)
-- [Comic Fury](https://comicfury.com/profile.php?username=LittleGreenGiant)
 - [Tumblr](https://littlegreengiant.tumblr.com/)
-- [Minecraft](mine.ly/LittleGreenGiant.1)
-- [My Site](https://minigreengiant.github.io/MiniGreenGiant/)
 - Email: tplinkimissyou@gmail.com
